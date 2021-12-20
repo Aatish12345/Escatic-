@@ -1,0 +1,2 @@
+# Escatic-
+Meme token
